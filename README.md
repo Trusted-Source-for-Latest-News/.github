@@ -35,3 +35,12 @@ If you want reliable and fresh news, visit **[TazaBat.in](https://tazabat.in)** 
 With so much information available online, finding the right and accurate news can be challenging. That’s where platforms like TazaBat.in come in. It not only provides the latest updates but also makes them easy to understand. So, next time you need to catch up on the latest news, make sure to visit **[TazaBat.in](https://tazabat.in)**.  
 
 **Stay updated with just one click!**  
+- [CBSC Admin Card 2025 Download](https://tazabat.in/cbse-admit-card-2025-class-10-download/)
+- [RPSC RAS एडमिट कार्ड 2024](https://tazabat.in/rpsc-ras-admit-card-2024-download/)
+- [तमिलनाडु डिप्लोमा रिजल्ट 2025](https://tazabat.in/tamil-nadu-diploma-result-2025-check-online-mark-sheet-download/)
+- [मनराज जवांदा (Manraj Jawanda) कौन हैं](https://tazabat.in/manraj-jawanda-kaun-hain-raftaar-ki-patni/)
+- [EV स्कूटर चार्जिंग स्टेशन कहां खोजें](https://tazabat.in/ev-scooter-charging-station-guide/)
+- [Ola S1 Pro vs Ather 450X](https://tazabat.in/ola-s1-pro-vs-ather-450x-best-electric-scooter/)
+- [SBI Clerk Prelims Exam Date 2025](https://tazabat.in/sbi-clerk-prelims-exam-date-2025/)
+- [Pooja Hegde की फिल्मों का जादू](https://tazabat.in/pooja-hegde-films-magic-net-worth-2025/)
+- [UPPSC Exam Calendar 2025](https://tazabat.in/uppsc-exam-calendar-2025-detail-information/)
